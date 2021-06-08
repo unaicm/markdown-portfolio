@@ -1,6 +1,11 @@
- Most important people of the club:
+ __*Who is the most important: Top 5*__ 
  1. Diego Pablo
+   - Leader
  2. Koke
    - Capitán 
- 3. Saúl
-  - The new idol
+ 3. Oblak
+  - Safety
+ 4. Suárez
+  - Goalscorer
+ 5. Llorente
+  - Strength
