@@ -6,6 +6,6 @@
  3. Oblak
   - Safety
  4. Suárez
-  - Goalscorer
+  - Goal scorer
  5. Llorente
   - Strength
