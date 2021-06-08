@@ -1,7 +1,6 @@
- 1. Diego Padre
+ Most important people of the club:
+ 1. Diego Pablo
  2. Koke
-   - 1.Capitán 
-   - 2.GOAT 
-   - 3.Mi padre
+   - Capitán 
  3. Saúl
-  - 1.Bring me back my 8
+  - The new idol
