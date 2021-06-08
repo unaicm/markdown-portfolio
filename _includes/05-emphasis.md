@@ -1,7 +1,7 @@
-🔴 ⚪_Atleti 2- Barcelona 0_ 🔵 🔴
+🔴 ⚪ Atleti 1- Barcelona 0 🔵 🔴
 
-**Goleadores** ⚽
+**Scorer** ⚽
 
-1-0 __*Griezmann*__ 
+1-0 __*Koke*__ 
 
-2-0 __*Griezmann*__
+
